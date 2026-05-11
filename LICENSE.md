@@ -1,4 +1,4 @@
-
+Enhance CorelDRAW for macOS with smart CorelDRAW for macOS Extension | auto-retouch + AI-assisted design, the #1 extension. Includes auto-retouch and AI-assisted design for a
 
 
 
